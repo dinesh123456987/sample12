@@ -1,2 +1,1 @@
-# sample12
-i am a bad man
+# samketta payan sir indha kali
